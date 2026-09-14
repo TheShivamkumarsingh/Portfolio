@@ -1,0 +1,1 @@
+Resume-based portfolio. GitHub: https://github.com/TheShivamkumarsingh | LinkedIn: https://linkedin.com/in/theshivam-kumar-singh | Email: shivamkumarbxr23@gmail.com
